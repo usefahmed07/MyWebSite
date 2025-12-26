@@ -3,6 +3,6 @@
 Hi! I’m **Youssef Ahmed** :D
 
 Connect with me:  
-[GitHub](https://github.com/USERNAME) | 
-[LinkedIn](https://www.linkedin.com/in/USERNAME) | 
-[X](https://x.com/USERNAME)
+[GitHub](https://github.com/usefahmed07 ) | 
+[LinkedIn](https://www.linkedin.com/in/youssef-ahmed-b13658290) | 
+[X](https://x.com/usif74)
