@@ -1,6 +1,6 @@
 # Welcome
 
-# Hi! I’m **Youssef Ahmed** :D
+# Hi! I’m **Youssef Ahmed**
 
 Connect with me:  
 [GitHub](https://github.com/usefahmed07 ) | 
