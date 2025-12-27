@@ -1,6 +1,6 @@
 # Welcome
 
-# Hi, I'm Youssef Ahmed — **Software Engineer**
+# yo, I'm Youssef Ahmed — **Software Engineer**
 
 Connect with me:  
 [GitHub](https://github.com/usefahmed07 ) | 
